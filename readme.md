@@ -3,3 +3,5 @@
 This is the body of the readme
 
 I am adding some text
+
+Hector Palacios. Web Dev Rocks!
