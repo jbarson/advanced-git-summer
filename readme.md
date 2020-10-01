@@ -6,6 +6,8 @@ Josh ew ahhhh
 
 I am adding some text
 
+Chelsea Dyck : lets collaborate!
+
 Hector Palacios. Web Dev Rocks!
 
 Jon Barson you are all the best
