@@ -19,3 +19,8 @@ Angela Kim french toast n wafflewafflewaffles
 Ashley Hayes Supercalifragilisticexpialidocious!
 
 Abdul Farhan (╯°□°）╯︵ ┻━┻ ...
+
+Johnny Wang keep working~~
+
+Elizer Toribio thinks you are all great Devs
+
